@@ -1,1 +1,1 @@
-https://z1x60gx5mtg3.max.labstack.me
+https://lpsdwv46zw18.zoe.labstack.me
