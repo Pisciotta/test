@@ -1,1 +1,1 @@
-https://2k29nsul5qbq.max.labstack.me
+https://jysu0hwr5pac.max.labstack.me
